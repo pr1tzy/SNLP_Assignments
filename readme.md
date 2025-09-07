@@ -1,1 +1,3 @@
-readme
+Prithvi Singh
+J046
+70092200081
